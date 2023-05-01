@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 - 👋 Hi, I’m Carlo Capuozzo
 - 👀 I’m interested in Travels, movies, series, books, developing, art and design!
 - 💞️ I’m looking to find a job!
